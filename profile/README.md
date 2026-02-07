@@ -1,4 +1,4 @@
-# 🕊️ Lulu & Burdie
+# Lulu & Burdie
 
 ### `Own Motherhood.` 
 **Reimagining the postpartum journey through technical innovation and thoughtful design.**
