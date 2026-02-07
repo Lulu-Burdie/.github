@@ -17,7 +17,6 @@ At Lulu & Burdie, we believe in a future where "premium" also means "planet-posi
 ### 💡 Intellectual Property
 We are building a robust foundation of IP to support our global growth:
 * **Patent-Pending:** Unique swap-insert system for all-day dryness.
-* **Trademarked:** Our brand identity and "Own Motherhood" positioning are core to our market presence.
 
 ---
 
@@ -28,6 +27,6 @@ We are building a robust foundation of IP to support our global growth:
 ### 📫 Get in Touch
 We are always open to exploring partnership opportunities with premium retailers, healthcare professionals, and parent-support organisations.
 
-* [cite_start]**Email:** [hello@luluandburdie.com](mailto:hello@luluandburdie.com) [cite: 3, 122]
-* [cite_start]**Web:** [www.luluandburdie.com](https://luluandburdie.com) [cite: 147]
+* [cite_start]**Email:** [hello@luluandburdie.com](mailto:hello@luluandburdie.com)
+* [cite_start]**Web:** [www.luluandburdie.com](https://luluandburdie.com)
 * **LinkedIn:** [Lulu & Burdie](https://www.linkedin.com/company/lulu-and-burdie/)
