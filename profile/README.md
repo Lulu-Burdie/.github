@@ -27,6 +27,7 @@ We are building a robust foundation of IP to support our global growth:
 ### 📫 Get in Touch
 We are always open to exploring partnership opportunities with premium retailers, healthcare professionals, and parent-support organisations.
 
-* [cite_start]**Email:** [hello@luluandburdie.com](mailto:hello@luluandburdie.com)
-* [cite_start]**Web:** [www.luluandburdie.com](https://luluandburdie.com)
+* **Email:** [hello@luluandburdie.com](mailto:hello@luluandburdie.com)
+* **Web:** [www.luluandburdie.com](https://luluandburdie.com)
+* **Instagram:** [Lulu & Burdie](https://www.instagram.com/luluandburdie/)
 * **LinkedIn:** [Lulu & Burdie](https://www.linkedin.com/company/lulu-and-burdie/)
